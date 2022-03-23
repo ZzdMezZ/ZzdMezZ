@@ -1,4 +1,4 @@
 - 👋 Olá, I’m @ZzdMezZ
 - 👀 I’m interested in Games, CryptoCurrencies n Ethical Hacking stuff
 - 🌱 I’m currently learning HTML, JavaScript n Python
-- 📫 How to reach me on my Instagram @d.Mentadores
+- 📫 You can reach me on my Instagram @d.Mentadores
